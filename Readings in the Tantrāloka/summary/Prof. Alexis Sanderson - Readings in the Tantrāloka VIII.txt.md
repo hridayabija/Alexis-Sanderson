@@ -1,4 +1,4 @@
-##Unveiling the Hidden History of the Trika Tradition in Kashmir
+## Unveiling the Hidden History of the Trika Tradition in Kashmir
 
 Professor Sanderson's final lecture on the *Trika Loka* takes us on a journeythrough time, seeking to illuminate the presence and nature of the *Trika* tradition in Kashmir before the renowned scholar Abhinavagupta. While Abhinavagupta's works, dating roughly around 1000 AD, provide a wealth of knowledge about the *Trika*, Professor Sanderson aims topush beyond this timeframe and delve into the tradition's earlier roots. 
 

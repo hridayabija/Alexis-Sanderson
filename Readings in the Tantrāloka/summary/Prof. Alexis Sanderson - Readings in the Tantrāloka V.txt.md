@@ -1,6 +1,4 @@
-
-
-##Abhinavagupta's Commentary: Unveiling Utpaladeva andLakṣmaṇagupta within the Trika Lineage
+## Abhinavagupta's Commentary: Unveiling Utpaladeva andLakṣmaṇagupta within the Trika Lineage
 
 This exploration delvesinto a lecture transcript that meticulously unpacks Abhinavagupta's commentary on two significant figures of the Trika lineage: Utpaladeva and Lakṣmaṇagupta. Abhinavagupta, a renowned Kashmiri philosopher, theologian, and aesthetician (c. 950–1020 CE), is considered a pivotal figure in the tradition of Kashmir Shaivism. His works, particularly his commentaries on earlier masters, offer invaluable insights into this rich philosophical and spiritual system.
 

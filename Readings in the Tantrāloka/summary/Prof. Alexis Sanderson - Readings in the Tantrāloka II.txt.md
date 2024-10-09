@@ -1,4 +1,4 @@
-##Unveiling the Heart of Abhinavagupta's Tantrāloka: A Journey into Kashmir Śaivism
+## Unveiling the Heart of Abhinavagupta's Tantrāloka: A Journey into Kashmir Śaivism
 
 This exploration delves intothe rich tapestry of Abhinavagupta's *Tantrāloka*, specifically focusing on the philosophical and cultural nuances embedded within its opening verses.### Homage to the Guru: Lakṣmaṇ Joo and the Lineage of Wisdom
 

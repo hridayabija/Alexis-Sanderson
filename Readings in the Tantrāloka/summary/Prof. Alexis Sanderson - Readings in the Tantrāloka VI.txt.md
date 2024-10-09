@@ -1,8 +1,8 @@
-##A Deep Dive into Abhinavagupta's Lineage and Influences
+## A Deep Dive into Abhinavagupta's Lineage and Influences
 
 Thisexploration delves into the rich tapestry of Abhinavagupta's philosophicallineage and the key influences that shaped his worldview, focusing on the significance of the Krama tradition and the profound impact of his father's guidance.
 
-###I. Abhinavagupta's Lineage and the Language of Silence
+### I. Abhinavagupta's Lineage and the Language of Silence
 
 Abhinavagupta, a towering figure in the world of Kashmiri Śaivism, meticulously acknowledges the diverse strands of Śaiva thought that flowed into his magnum opus, the *Tantrāloka* ("The Light on Tantra"). He categorizes these schools of thought as "lineages" (Sanskrit: *saṃtāna*). However, a curious silence surrounding one particular lineage – the Āmardaka Saṃtāna – offers a glimpse into Abhinavagupta's philosophical preferences and thesubtle ways in which intellectual traditions position themselves. 
 

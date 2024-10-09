@@ -1,4 +1,4 @@
-##Unveiling the Mysteries of the Tantrāloka: A Detailed Exploration ofProfessor Sanderson's Lecture
+## Unveiling the Mysteries of the Tantrāloka: A Detailed Exploration ofProfessor Sanderson's Lecture
 
 This exploration delves into the depths of Professor Sanderson's lecture on Abhinavagupta's *Tantrāloka*, a seminal text of Kashmiri Śaivism. Building upon thepreviously established framework, this analysis dissects and expands upon the lecture's key themes, concepts, and historical figures, illuminating the complexities of this esoteric tradition.### I. Introduction: Setting the Stage for Tantric Exploration
 

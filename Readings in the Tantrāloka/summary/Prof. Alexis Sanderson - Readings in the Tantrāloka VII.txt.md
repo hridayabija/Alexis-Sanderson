@@ -1,4 +1,4 @@
-##A Deep Dive into Abhinavagupta's Tantrāloka: Exploring Verse 13 and the Kaula Tradition
+## A Deep Dive into Abhinavagupta's Tantrāloka: Exploring Verse 13 and the Kaula Tradition
 
 This exploration delvesinto a lecture by Professor Sanderson on Abhinavagupta's *Tantrāloka*, specifically focusing on verse 13 and its rich implicationsfor understanding the Kaula tradition within Kashmir Shaivism.
 

@@ -1,4 +1,4 @@
-##A Deep Dive into Abhinavagupta's Tantrāloka: Unpacking the Opening Verse
+## A Deep Dive into Abhinavagupta's Tantrāloka: Unpacking the Opening Verse
 
 The opening verse of Abhinavagupta's *Tantrāloka* is not merely a prayer but a dense tapestry of philosophical concepts, cultural nuances, and personal revelations. This exploration delves into the verse's depths, drawing on both its explicit content and the rich intellectual history it embodies.
 

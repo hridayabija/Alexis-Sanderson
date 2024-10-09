@@ -1,4 +1,4 @@
-##A Deep Dive into the Teachings of Abhinavagupta: Exploring theSource Text
+## A Deep Dive into the Teachings of Abhinavagupta: Exploring theSource Text
 
 This document delves into a detailed exploration of the provided source text, expanding upon the previously established structural framework. We will unpack the layers of meaning embedded within each subtopic, chapter, concept, idea, phrase, keyword,and term, drawing upon both the source text and a broader understanding of the philosophical context.
 
